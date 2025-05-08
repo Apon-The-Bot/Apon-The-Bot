@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python
 - 📫 How to reach me
 -   FB-https://www.facebook.com/mdamanullahsheikh.apon
--   Insta-https://www.instagram.com/mdamanullahsheikhapon/
+-   Insta-https://www.instagram.com/mdamanullahsheikh.apon/
 -   LinkedIn-https://www.linkedin.com/in/md-amanullah-sheikh-apon-33195925b/
 -   WhatsApp- 01996619966
 - ⚡ Fun fact: I eat a lot of food 😁
